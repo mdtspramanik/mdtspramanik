@@ -1,4 +1,4 @@
-![banner-image](https://github.com/user-attachments/assets/3c13c1d7-b112-4f39-ac58-122e64579875)
+![banner-image](https://github.com/user-attachments/assets/86589321-7acc-4463-9cfd-5fef028753d7)
 
 ## 📧 Contact: [mdtspramanik@gmail.com](mailto:mdtspramanik@gmail.com)
 
